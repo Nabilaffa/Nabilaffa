@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Nabilaffa
-- 👀 I’m interested in design
 - 📫 How to reach me afindanabila1711@gmail.com
 
 <!---
